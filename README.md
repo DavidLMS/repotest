@@ -1,2 +1,2 @@
-Hola
-Nos vemos
+Hola y adiós.
+
